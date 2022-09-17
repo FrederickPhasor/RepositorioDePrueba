@@ -2,4 +2,6 @@ Adoro los mensajes de voz.
 
 Yo los detesto.
 
-Sí, esos también molan.
+Ahora los puedes poner a velocidad 2x, no sé si lo sabías.
+
+
